@@ -21,7 +21,7 @@
 - Music
   - Electro / sweet techno / and sometimes i play piano 
 
-#### You can always count on me when it's 5am and you are totally drunk 😉
+#### You can always count on me when yo have some bugs in your code and you need some backup 😉
 The positive contributions that i can bring to the group : positive ambience , you will always feel comfortable when you work with me on the same project, organised
 
 
