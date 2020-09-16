@@ -9,7 +9,7 @@
 
 |Birthday|11/September 🥳|
 |---|---|
-|Favourite color|black 😎|
+|Favourite colors|brown/black 😎|
 |Favourite food| sea food 😋|
 |Pinneapple on pizza|Yes/No 🤔|
 
