@@ -25,4 +25,4 @@
 The positive contributions that i can bring to the group : positive ambience , you will always feel comfortable when you work with me on the same project, organised
 
 
-<< [previous] || Abdulrazak || [next](https://github.com/Ahmad-Hendi/markdown-challeng-/blob/master/README.md) >>
+<< previous || Abdulrazak || [next](https://github.com/Ahmad-Hendi/markdown-challeng-/blob/master/README.md) >>
